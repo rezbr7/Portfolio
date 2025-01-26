@@ -1,4 +1,4 @@
-🚀 [Your Name]’s GitHub Portfolio
+🚀 Reza Barzegar’s GitHub Portfolio
 
 🎨 Designer | Innovator | Problem-Solver
 Welcome to my GitHub portfolio! This is where I showcase my passion for design, ranging from industrial design to graphic design, and my journey in creating impactful and innovative solutions.
